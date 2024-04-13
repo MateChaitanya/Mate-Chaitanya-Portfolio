@@ -1,3 +1,3 @@
 ## Portfolio Link :-
 
-https://matechaitanya.github.io/Portfolio/
+https://matechaitanya.github.io/Mate-Chaitanya-Portfolio/
